@@ -1,2 +1,2 @@
 # crispy-enigma
-Its gonna blow your mind.
+Deneme 123 123 deneme wow.
